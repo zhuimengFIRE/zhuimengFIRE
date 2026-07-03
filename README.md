@@ -1,3 +1,3 @@
-### Hello! I'm FFang 👋
+### Hello! I'm 方同学 👋
 
-一枚平平无奇的iOS开发者
+AI时代，拥抱AI
